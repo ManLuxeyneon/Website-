@@ -1,3 +1,3 @@
 # Website-
-For project purposes
-Mary Anne Niones
+For project purposes only.
+
